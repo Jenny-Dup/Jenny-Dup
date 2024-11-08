@@ -1,10 +1,10 @@
 Hello there 
 
 
-I am a full-stack developer with a unique blend of computer science skills and human biomechanics experience 🦾
+🌟 Ex-healthcare pro turned code whisperer 💻 
 
-Passionate about building innovative solutions at the intersection of software and complex real-world problems 🌐
+From frontline care to backend brilliance, blending empathy and engineering to build impactful solutions! 🚀
 
-My hobbies include puzzle-solving, etymology, and diving into the latest scientific literature 📗
+My hobbies include puzzle-solving, etymology, and diving into the latest health-science literature 📗
 
-Women in STEM ⭐
+Women in STEM ⭐💪
