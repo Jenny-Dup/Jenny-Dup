@@ -10,7 +10,6 @@ My hobbies include puzzle-solving, etymology, and diving into the latest scienti
 
 Women in STEM ⭐💪
 
-![jenny du preez](https://github.com/user-attachments/assets/95dd69da-c337-469d-9022-37e70af5eeae)
 
 
 
